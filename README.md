@@ -1,0 +1,1 @@
+# IveKnownAboutTeslaSinceHS_ButIDontKnowHowTheWholeChargingThingWorks_IsntGasLessHassle_IDK
